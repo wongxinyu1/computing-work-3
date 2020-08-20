@@ -1,2 +1,3 @@
 # computing-work
-story of a migrant's journey onboard the ship 
+Migrant's journey to Singapore (Nanyang) 
+It had been countless hazy days. 
