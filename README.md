@@ -13,5 +13,7 @@
  "Be strong," her mother whispered. "He will be strong too." 
   •  •  •  
   Not long after boarding the ship, Siew remembered that across from her mother and her had been a young man of similar age, about seventeen, and a pale, pinched girl. Siew would often watch them from across. 
-  The 
-  The little girl who had a steady tread and a graceful smile had looked up to him. She had a knowing glint in her eye that disappeared when she amused her brother or had long heart-to-heart talks with him, that reappeared whenever the hint of a smile finally broke through his composed, reserved demeanour. 
+  The lad was of similar age to her. He looked vaguely familiar, a face that reminded her of home, yet it could very well have just been her own longing for her hometown. On this ship, their only means of survival, she would not believe there was another who did not miss their hometown. 
+ Still, she was disinclined to ask him for his hometown for his gaze, gentle but cold like flakes of ice. Although as an overly tall lass she was nesrly his height, he carried himself with such a posture that even with short hair and a mellow face, it intimidated far more than had he put on a scowl and stomp. 
+ So she watched. And for days, weeks, who knows how long, she watched. 
+  The little girl, who had a steady tread and a graceful smile, had looked up to him very visibly. She had a covert knowing glint in her eye that disappeared when she amused her brother or had long heart-to-heart talks with him, that reappeared whenever the hint of a smile finally broke through his composed, reserved demeanour. From their conversations of few words but overflowing meaning, the girl had proven bright and clever, but especially loved the lad, amusing him with all sorts of witty antics that sometimes, just sometimes, brought a smile to her own face as she watched from the shadows. 
