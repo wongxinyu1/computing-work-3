@@ -6,10 +6,10 @@
  He said the name with so much tenderness, so much sorrow, it latched onto the heart of the young lass of similar age and didn't loosen its grip. Tendrils of shadow spiralled across her face to the lurching of the ship, and the dull ache deep within her chest rose to form a warm pressure behind her eyes despite all her struggle not to. Her gaze lowered to the damp wooden boards, just so she would not have to look at his moment of vulnerability, to give him the privacy he deserved; knees hugged tight to her chest as she swayed along to the rhythm of the torrent that swelled and declined as if it couldn't make up its mind. 
  There was a scarcely perceptible tug on her sleeve behind her. "Ma," she immediately turned round to attend to her mother. The deep-set scars of creases on her mother's forehead deepened as she was rocked to consciousness. Bit by bit, the frail old woman opened her eyes, carved crow's feet blooming from the corners of her natural squint. She slowly parted her lips. "Siew-ah," she whispered hoarsely. 
  "Yes, Ma?" She quickly brushed away the tears in her eyes and bent forward to seek her mother's gaze, long braids falling over both shoulders. 
- "Don't be sad any more." 
+ Her mother looked for a long time into her eyes, and finally whispered, "Don't be sad any more." 
  Her mother's voice was soft yet firm, gentle yet unyielding, but even so, hesitant. Siew almost swallowed, emotion building up in her throat. 
  "Don't be sad for him any more," her mother said again, voice thin and tired eyes distant. "Nanyang will have many more challenges for you to face. You must build up a thick skin, that will help you get stronger." 
- Siew bit her lip, tears that had come fom nowhere close to spilling over. "But Ma," she whispered forlornly, voice thick and shaky; straining to hold back. Yet somehow everything she held back, told everything she didn't know how to say. 
+ The lass bit her lip, tears that had come fom nowhere close to spilling over. "But Ma," she whispered forlornly, voice thick and shaky; straining to hold back. Yet somehow everything she held back, told everything she didn't know how to say. 
  "Be strong," her mother whispered. "He will be strong too." 
   •  •  •  
   Not long after boarding the ship, Siew remembered that across from her mother and her had been a young man of similar age, about seventeen, and a younger girl, pale and pinched albeit lovely. Siew would often watch them from across. 
