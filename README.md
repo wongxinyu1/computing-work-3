@@ -7,7 +7,7 @@
  There was a scarcely perceptible tug on her sleeve behind her. "Ma," she immediately turned round to attend to her mother. The deep-set scars of creases on her mother's forehead deepened as she was rocked to consciousness. Bit by bit, the frail old woman opened her eyes, carved crow's feet blooming from the corners of her natural squint. She slowly parted her lips. "Siew-ah," she whispered hoarsely. 
  "Yes, Ma?" She quickly brushed away the tears in her eyes and bent forward to seek her mother's gaze, long braids falling over both shoulders. 
  Her mother looked for a long time into her eyes, and finally whispered, "Don't be sad any more." 
- Her mother's voice was soft yet firm, gentle yet unyielding, but even so, hesitant. Siew almost swallowed, emotion building up in her throat. 
+ Her mother's voice was soft yet firm, gentle yet unyielding, but even so, hesitant. The lass almost swallowed, emotion building up in her throat. 
  "Don't be sad for him any more," her mother said again, voice thin and tired eyes distant. "Nanyang will have many more challenges for you to face. You must build up a thick skin, that will help you get stronger." 
  The lass bit her lip, tears that had come fom nowhere close to spilling over. "But Ma," she whispered forlornly, voice thick and shaky; straining to hold back. Yet somehow everything she held back, told everything she didn't know how to say. 
  "Be strong," her mother whispered. "He will be strong too." 
